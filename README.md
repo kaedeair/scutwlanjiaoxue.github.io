@@ -1,1 +1,4 @@
-# scutwlanjiaoxue.github.io
+# 交学语录
+记录群友们的交学发言  
+欢迎加入华工路由群  
+
